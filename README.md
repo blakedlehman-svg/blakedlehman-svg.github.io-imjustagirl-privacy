@@ -1,4 +1,4 @@
-# blakedlehman-svg.github.io
+Privacy policy
 
 I’m Just A Girl” respects your privacy. This Privacy Policy explains what information we collect, how it’s used, and your choices.
 Information We Collect
